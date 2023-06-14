@@ -1,1 +1,1 @@
-https://entus1asm.github.io/college_practice3/
+https://entys1asm.github.io/college_practice-3/
